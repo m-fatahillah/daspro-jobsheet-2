@@ -1,0 +1,1 @@
+pembuktian percobaan 2.1 pertanyaan nomor 2
